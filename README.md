@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Finding amazing talent
 - 🌱 I’m currently learning ...Human resources and psychology
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...Francocipora@gmail.com
+- 📫 How to reach me ... Francocipora@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ...
 
